@@ -3,7 +3,7 @@
 
 <div align=left> ✧
       
-<div align=center> $\color{#036c5f}{\textsf{Necromancer 　 / 　 Soren}}$ .ᐟ⸝⸝ 
+<div align=center> $${\color{blue}Blue}$$ .ᐟ⸝⸝ 
 
 <div align=center> '⁔ 　　I am very shy when it comes to strangers, but I don't necessarily hate interaction.<img width="800" height="30" alt="09" src="https://github.com/user-attachments/assets/584ff16a-c7cd-42ba-b6e7-3354ae1ec8a3" />
 
