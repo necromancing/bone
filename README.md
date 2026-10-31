@@ -1,7 +1,7 @@
 #
 　　　　　 <img width="670" height="482" alt="1000022183-1" src="https://github.com/user-attachments/assets/91d2f93a-2695-4399-8342-ec5d59e75088" />  　　　　　　　　　　　　　　　　   　　　　　
 
-　　　　　　　　　　　　　　　　　　　　　　Necromancer / Soren 　
+　　　　　　　　　　　　　　　　　　　　Necromancer / Soren 　
 
 　　　　　　　　I am very shy when it comes to strangers, but I don't necessarily hate interaction.　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
