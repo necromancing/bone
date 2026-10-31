@@ -8,7 +8,7 @@
 　　　　　　Very fond of insects and mycology. The cobalt crust fungus is a personal favorite! :-)
         
 
- 　　　　　　　　　　　　　　　　　　　　　　　　Ɛ==3                                         
+ 　　　　　　　　　　　　　　　　　　　　　　　Ɛ==3                                         
                                                              　　　　　　　　　　　　　　　　
  <img width="298" height="85" alt="1000022184-1" src="https://github.com/user-attachments/assets/685384c8-e3aa-4647-b576-ed8faa42e289" />
 
