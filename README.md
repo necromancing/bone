@@ -9,11 +9,11 @@
 <div align=center>Very fond of insects and mycology. The cobalt crust fungus is a personal favorite! :-)
         
 
- <div align=center> Ɛ==3                                         
-
-<div align=center> <img width="150" height="20" alt="tumblr_7fee4fa8d3e6889c571af2273fc08d8c_341da5eb_250 gif" src="https://github.com/user-attachments/assets/0562b724-543a-4e48-81ec-bb6ff8ced1a4" />
+ <div align=center> Ɛ==3
 
 <div align=center> <img width="150" height="20" alt="d28" src="https://github.com/user-attachments/assets/41fffd19-7fd3-4570-a4fa-280b55dbfcde" />
+
+<div align=center> <img width="150" height="20" alt="tumblr_7fee4fa8d3e6889c571af2273fc08d8c_341da5eb_250 gif" src="https://github.com/user-attachments/assets/0562b724-543a-4e48-81ec-bb6ff8ced1a4" />
 
 
  <div align=center> <img width="298" height="85" alt="1000022184-1" src="https://github.com/user-attachments/assets/685384c8-e3aa-4647-b576-ed8faa42e289" />
