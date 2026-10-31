@@ -3,7 +3,8 @@
       
 <div align=center> Necromancer 　 / 　 Soren 　.ᐟ⸝⸝
 
-<div align=center> '⁔ 　　I am very shy when it comes to strangers, but I don't necessarily hate interaction.　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+<div align=center> '⁔ 　　I am very shy when it comes to strangers, but I don't necessarily hate interaction.<img width="800" height="30" alt="09" src="https://github.com/user-attachments/assets/584ff16a-c7cd-42ba-b6e7-3354ae1ec8a3" />
+
 
 <div align=center>Very fond of insects and mycology. The cobalt crust fungus is a personal favorite! :-)
         
