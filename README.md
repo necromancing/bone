@@ -3,7 +3,7 @@
 
 　　　　　　　　　　　　　　　　　　　　Necromancer / Soren 　
 
-　　　　　　　　I am very shy when it comes to strangers, but I don't necessarily hate interaction.　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　'⁔ 　　I am very shy when it comes to strangers, but I don't necessarily hate interaction.　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 　　　　　　Very fond of insects and mycology. The cobalt crust fungus is a personal favorite! :-)
         
